@@ -7,7 +7,7 @@
 - 💻 I love writing clean & simple code  
 - 🚀 Currently improving **Java**, **DSA**, and **Web Dev**  
 - 🎯 Goal: Become a better engineer every single day  
-- 📫 How to reach me: **your-email@example.com**  
+- 📫 How to reach me: IG || @iadityakatara  
 
 ---
 
